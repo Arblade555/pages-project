@@ -4,7 +4,7 @@
 
 **now it looks like I am serious**
 
-* *IMPORTANT PLEASE DO NOT!!!* *
+* *IMPORTANT PLEASE DO NOT* *
 
 ~~erm, what the sigma~~
 **please disregard the previous text as _this is not a reflection_ of my persona**
