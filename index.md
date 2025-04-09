@@ -4,9 +4,9 @@
 
 **now it looks like I am serious**
 
-_ _IMPORTANT PLEASE DO NOT!!!_ _
+__IMPORTANT PLEASE DO NOT!!!_ _
 
-~erm, what the sigma~
+~~erm, what the sigma~~
 **please disregard the previous text as _this is not a reflection_ of my persona**
 
 ***thanks for your attention, now for more schizo ramblings***
