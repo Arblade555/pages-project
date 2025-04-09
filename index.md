@@ -40,7 +40,7 @@ you should totally [look at this graph](https://www.youtube.com/watch?v=oMRgdpXL
 
 Link to the start: [link](# wow-this-is-big)
 
-[read-me](pages-project/README.md)
+[read-me](https://github.com/Arblade555/pages-project/blob/main/README.md)
 
 - chocolate
 - pistachio
